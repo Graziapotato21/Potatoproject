@@ -1,2 +1,0 @@
-# Potatoproject 
-Мои чертежи
